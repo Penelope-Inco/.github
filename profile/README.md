@@ -231,7 +231,7 @@ We collaborate openly on research and selectively on product development. Pull r
 
 ## Get in Touch
 
-📧 **[contact@penelope-inc.io](mailto:contact@penelope-inc.io)**
+📧 **[penelopeincorporated1@gmail.com](mailto:contact@penelope-inc.io)**
 
 <br/>
 
